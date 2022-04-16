@@ -1,0 +1,2 @@
+# oznakomitelnaya_praktika
+ознакомительная практика
